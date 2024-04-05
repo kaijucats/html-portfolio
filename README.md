@@ -1,2 +1,2 @@
 # html-portfolio
-struggling to learn
+I want to learn, improve and grow. 
